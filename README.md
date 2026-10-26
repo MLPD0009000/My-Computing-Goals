@@ -3,3 +3,13 @@
 - Know how to code
 - Knowing the logic behind the computer
 - Know how to fix a computer
+
+# My Favorite Technology
+
+**Computer:**
+- It is because I can do programming and do my job and school projects.
+- I can use it for entertainment like gaming and watching videos.
+
+**Cellphone:**
+- It is portable and easy to carry.
+- It provides entertainment, information and more
